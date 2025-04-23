@@ -1,1 +1,1 @@
-# Sarkarirasult.com
+# [hyyu](https://sarkarirasult.com)
